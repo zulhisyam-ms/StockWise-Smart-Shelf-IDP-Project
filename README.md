@@ -1,0 +1,1 @@
+# StockWise-Smart-Shelf-IDP-Project
